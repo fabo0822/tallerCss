@@ -1,0 +1,1 @@
+https://partesparapc.netlify.app/
